@@ -1,5 +1,5 @@
 ## Satyam Mishra
-[https://www.google.com/url?sa=i&url=https%3A%2F%2Fjaxenter.com%2Fdeveloper-coder-engineer-job-titles-136789.html&psig=AOvVaw3y56YWkZoKNuI-2u3Rrg_C&ust=1653018865089000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCOi3gqPV6vcCFQAAAAAdAAAAABAD]
+[![image](https://user-images.githubusercontent.com/102215552/169201308-dd393dae-85fe-48bf-85cb-d4541e9b3d99.png)]
 
 ## Education 
 KBDAV Sen. Sec. Public School, Chandigarh https://kbdav.org/
